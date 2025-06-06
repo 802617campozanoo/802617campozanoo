@@ -1,1 +1,1 @@
-Meu nome é Pedro Campozano(abreviado) sou discente de administração com linha de formação em sistemas agroindutriais (curso presencial e integral) na Universidade Federal de São Carlos e discente de GTI na uninove(ead). 
+Pedro Campozano
